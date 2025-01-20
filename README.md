@@ -1,1 +1,0 @@
-# enkapsulasi-bu-aul
